@@ -174,8 +174,8 @@ We also recorded a walkthrough of everything we did — from the idea to the mod
 
 If you have any questions or want access to the dataset, feel free to reach out:
 
-**Sesha Sai Ramineni**  
-📧 ramineniseshasai@gmail.com
+**Prateek Singh**  
+📧 prasingh@mtu.edu
 
 ---
 
